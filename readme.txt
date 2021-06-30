@@ -1,1 +1,1 @@
-Okay thats in poor taste, we are tesing this
+Okay we are tesing this
